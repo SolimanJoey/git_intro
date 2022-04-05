@@ -1,1 +1,4 @@
-"Joey Soliman" 
+Joey Soliman 
+solimanj@oregonstate.edu
+purple
+Subtronics
